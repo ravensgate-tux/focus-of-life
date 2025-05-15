@@ -95,11 +95,12 @@ _「恐怖の谷における記憶の努力」<br>
 
 ### 🇬🇧
 
-"The effort of remembering in the Valley of Fear."<br>
+_"The effort of remembering in the Valley of Fear."<br>
 KIA OF THE EFFIGIES SPEAKS OF ZOS IN SOLILOQUY:<br>
 I bring a sword that contains its own medicine: The sour milk that cureth the body.<br>
 Prepare to meet God, the omnifarious believing,-Thyself the living truth.<br>
-Die not to spare, but that the world may perish.<br>
+Die not to spare, but that the world may perish._<br>
+<br>
 Nature is more atrocious. Learning all things from Thee in the most sinister way forrepresentation: from thy thought to become thereafter. Having suffered pleasure andpain, gladly dost thou deny the things of existence for freedom of desire-from thissorry mess of inequality-once so desired.<br>
 And is fear of desire. The addition of the 'I' of a greater illusion.<br>
 Desire is the conception I and induces Thou.<br>

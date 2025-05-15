@@ -1,6 +1,8 @@
 ## APHORISM III
 
----　🇯🇵
+---　
+
+### 🇯🇵
 
 THE DREAM THAT CAME TRUE
 One night Aaos was pleasured with this dream:
@@ -13,7 +15,9 @@ Aaos then awoke still living their ecstasy, and breathing heavily, spake to hims
 Aaos rising from his couch-threw away his sword and exclaimed aloud:
 "Now for reality!"
 
----　🇬🇧
+---　
+
+### 🇬🇧
 
 THE DREAM THAT CAME TRUE
 One night Aaos was pleasured with this dream:

@@ -1,6 +1,8 @@
 ## APHORISM III
 
---- 🇯🇵
+--- 
+
+### 🇯🇵
 
 THE DEAD BODY OF AAOS:
 Aaos preparing for death uttered in soliloque:
@@ -114,7 +116,9 @@ struggling through the mists, he spake thus:
 Awaking Aaos remembered his purpose, and spoke to his heart:
 "The arcana of desire [i.e. Self-love] would be satisfied with none but its original Self-bythe unique. Thus my morality taught me by dream symbols. As in life, so in sleep-allthings have a sexual significance, hidden by righteousness. Herein is a mystery and themeans to will. What is all humanity but one's own forgotten deliberation-becomingrestless? The unexpected bark of a dog should not frighten. Neither is medicine takenby pronouncing the name of the remedy. Verily, in the time of cataclysm it is too late topick the right word."
 
---- 🇬🇧
+--- 
+
+### 🇬🇧
 
 THE DEAD BODY OF AAOS:
 Aaos preparing for death uttered in soliloque:

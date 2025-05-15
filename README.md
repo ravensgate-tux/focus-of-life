@@ -23,10 +23,10 @@
 ### 🔹 APHORISM III: The Butcher of Those Who Follow
 [APHORISM III](aphorism03_butcher.md)
 
-### 🔹 APHORISM IV: The Dead Body of Aaos
+### 🔹 APHORISM III: The Dead Body of Aaos
 [APHORISM IV](aphorism04_deadbody.md)
 
-### 🔹 APHORISM V: The Dream That Came True
+### 🔹 APHORISM III: The Dream That Came True
 [APHORISM V](aphorism05_dream.md)
 
 ---

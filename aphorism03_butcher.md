@@ -1,6 +1,8 @@
 ## APHORISM III
 
---- 🇯🇵
+--- 
+
+### 🇯🇵
 
 "The Chaos of the Normal"
 IKKAH SPEAKS OF HIMSELF:
@@ -174,7 +176,9 @@ When the voice had left Aaos went his way muttering and smiling:
 For he thought that-Woman was dead. With this reflection Aaoss became silent.Awaking from his Self-introspection he spake aloud to his body:
 "Man is something that has resurrected from an archetype, a previous desire gone toworms. All conceptions predetermine their degeneration or supersedure by degrees ofmorality. Verily a new sexuality shall be mine,-unecessary to degenerate or surpass. Togive it a name, I call it the Unmodified sexuality; without a name it shall be conscious ofall desire: thus no ecstasy shall escape me. Its wisdom shall be dreams of Self-lovevibrating all the manifestations-I am he, who self pleasures non-morally."
 
---- 🇬🇧
+--- 
+
+### 🇬🇧
 
 "The Chaos of the Normal"
 IKKAH SPEAKS OF HIMSELF:

@@ -1,6 +1,8 @@
 ## APHORISM II
 
---- 🇯🇵
+--- 
+
+### 🇯🇵
 
 "Morals of shadow, wherein the Arcana of Zos has no commandments"
 ZOS SPEAKS OF IKKAH:
@@ -63,7 +65,9 @@ For he who premeditates, acts in his sleep.
 Having overcome the difficulty of obtaining a male incarnation from parents not toovenereal, one's habitation should be wandering among men: Employment, devotion toArt: Bed, a hard surface: Clothes of camel hair: Diet, sour milk and roots of the earth. Allmorality and love of women should be ignored. To whom does not such abandonmentgive the unknown pleasure?
 Again I say: 'In all things' pleasure Thyself, for occasion need not be.
 
---- 🇬🇧
+--- 
+
+### 🇬🇧
 
 "Morals of shadow, wherein the Arcana of Zos has no commandments"
 ZOS SPEAKS OF IKKAH:

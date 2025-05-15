@@ -1,6 +1,15 @@
 ## The Focus of Life（生命の焦点） - Austin Osman Spare 日本語訳プロジェクト（製作中）
 
-このZineは、オースティン・オスマン・スペアの『The Focus of Life（生命の焦点）』の全文を、翻訳したものです。
+このZineは、オースティン・オスマン・スペアの『The Focus of Life（生命の焦点）』の全文を、翻訳したものです。現在は制作途中です。
+
+<div align="right">
+
+**by 知られざる呪術師（*Le Sorcier Inconnu*）**  
+
+ディスコーディアン暦3191年 ZosとKiaの祝日第564日曜日  
+――手✋と目👁によるクラフトの祝日  
+
+</div>
 
 ---
 

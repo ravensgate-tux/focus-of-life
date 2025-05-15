@@ -20,13 +20,13 @@
 ### 🔹 APHORISM II: The Sexuality and Sleep of Aaos
 [APHORISM II](aphorism02_sex_sleep.md)
 
-### 🔹 APHORISM III: The Butcher of Those Who Follow
+### 🔹 APHORISM III-1: The Butcher of Those Who Follow
 [APHORISM III](aphorism03_butcher.md)
 
-### 🔹 APHORISM III: The Dead Body of Aaos
+### 🔹 APHORISM III-2: The Dead Body of Aaos
 [APHORISM IV](aphorism04_deadbody.md)
 
-### 🔹 APHORISM III: The Dream That Came True
+### 🔹 APHORISM III-3: The Dream That Came True
 [APHORISM V](aphorism05_dream.md)
 
 ---

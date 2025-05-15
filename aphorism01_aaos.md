@@ -1,6 +1,8 @@
 ## APHORISM I
 
---- 🇯🇵
+--- 
+
+### 🇯🇵
 
 "The effort of remembering in the Valley of Fear."
 KIA OF THE EFFIGIES SPEAKS OF ZOS IN SOLILOQUY:
@@ -88,7 +90,9 @@ Many unseemly words have been spoken in self slander, what more painful than tha
 There is nothing more to be said.
 'I'-infinite space.
 
---- 🇬🇧
+--- 
+
+### 🇬🇧
 
 "The effort of remembering in the Valley of Fear."
 KIA OF THE EFFIGIES SPEAKS OF ZOS IN SOLILOQUY:

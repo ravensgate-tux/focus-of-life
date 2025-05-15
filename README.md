@@ -5,7 +5,7 @@
 ---
 
 <div align="center">
- <img src="focus_of_life_2.png" width="500">
+ <img src="focus_of_life_2.png" width="300">
 </div>
 
 ---

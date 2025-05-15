@@ -1,6 +1,6 @@
 ## APHORISM III
 
----　
+---
 
 ### 🇯🇵
 
@@ -15,7 +15,7 @@ Aaos then awoke still living their ecstasy, and breathing heavily, spake to hims
 Aaos rising from his couch-threw away his sword and exclaimed aloud:
 "Now for reality!"
 
----　
+---
 
 ### 🇬🇧
 

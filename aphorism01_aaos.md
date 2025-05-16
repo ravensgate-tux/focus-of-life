@@ -10,10 +10,11 @@ _「恐怖の谷における記憶の努力」<br>
 神に会う準備をしろ、万物の存在を信じる者よ、お前自身が行ける真実なのだ。<br>
 命を惜しむな。世界を滅ぼすために死ね。_<br>
 <br>
-自然はより残酷だ。最も陰惨な方法で、あなたからすべてのものを学び、表現するために：あなたの思考から、その後になるために。喜びと苦痛を経験した後、あなたは欲望の自由のために、存在のものを喜んで否定する——この不平等な悲惨な状況から——かつてはそれほど望んでいたものから。<br>
-そして、欲望への恐怖がある。より大きな幻想の『私』の追加だ。<br>
-欲望は『私』の概念であり、『あなた』を誘発する。<br>
-あなたも私も第三者も存在しない——「私」と「自己」の統一によってこの意識を失うなら、性において意識の限界はない。<br><br>
+_自然はもっと残酷だ。最も陰惨な方法で、お前の思考から全てを学びとり、その後の姿を得る。快楽と苦痛を味わった後で、お前はかつて望んだ欲望の自由のために、喜んで存在の全てを否定するだろう。<br>
+そして、それは欲望への恐怖なのだ。より大きな幻想である「私」というものが加わるからだ。<br>
+欲望とは「私」の概念であり、「あなた」の概念がそこから生まれる。<br>
+「あなた」、「私」、「第三者」など存在しないのだ。「私」と「自己」を統一してこの意識を失えるなら、性において意識の限界はなくなる。_<br>
+<br>
 エクスタシーの中の孤立、最終的な誘因——それだけで十分だ。しかし、お前は一人で子孫を残せ！<br>
 奉仕するためではなく、嘲笑するために語れ。天の大きな笑い声を聞いているか？<br>
 口が開けば、正義が語られる。<br>
@@ -101,10 +102,11 @@ I bring a sword that contains its own medicine: The sour milk that cureth the bo
 Prepare to meet God, the omnifarious believing,-Thyself the living truth.<br>
 Die not to spare, but that the world may perish._<br>
 <br>
-Nature is more atrocious. Learning all things from Thee in the most sinister way forrepresentation: from thy thought to become thereafter. Having suffered pleasure andpain, gladly dost thou deny the things of existence for freedom of desire-from thissorry mess of inequality-once so desired.<br>
+_Nature is more atrocious. Learning all things from Thee in the most sinister way forrepresentation: from thy thought to become thereafter. Having suffered pleasure andpain, gladly dost thou deny the things of existence for freedom of desire-from thissorry mess of inequality-once so desired.<br
 And is fear of desire. The addition of the 'I' of a greater illusion.<br>
 Desire is the conception I and induces Thou.<br>
-There is neither thou nor I nor a third person-loosing this consciousness by unity of Iand Self; there would be no limit to consciousness in sexuality.<br>
+There is neither thou nor I nor a third person-loosing this consciousness by unity of Iand Self; there would be no limit to consciousness in sexuality._<br>
+<br>
 Isolation in ecstasy, the final inducement, is enough-But, procreate thou alone!<br>
 Speak not to serve but to scoff. Hearest thou, heaven's loud guffaw?<br>
 Directly the mouth opens it speaks righteousness.<br>

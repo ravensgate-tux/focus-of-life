@@ -14,7 +14,7 @@
 ---
 
 <div align="center">
- <img src="focus_of_life_2.png" width="300">
+ <img src="focus_of_life_3.jpg" width="300">
 </div>
 
 ---

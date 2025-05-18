@@ -17,6 +17,10 @@
  <img src="focus_of_life_3.jpg" width="500">
 </div>
 
+<div align="center">
+写真出典：Austin Osman Spare, 撮影年不詳（Public Domain）
+</div>
+
 ---
 
 ### 📘 目次（作業中）

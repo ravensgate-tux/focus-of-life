@@ -119,7 +119,7 @@ AAOS と葬儀屋
 <details>
 <summary>🇬🇧 原文を表示（別ファイルで開く）</summary>
 
-🔗 [原文を読む APHORISM II](aphorism04_deadbodye.md)
+🔗 [原文を読む APHORISM II-2](aphorism04_deadbodye.md)
 
 </details>
 

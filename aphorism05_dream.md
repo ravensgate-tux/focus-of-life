@@ -16,7 +16,7 @@
 <details>
 <summary>🇬🇧 原文を表示（別ファイルで開く）</summary>
 
-🔗 [原文を読む APHORISM II]I-3(aphorism05_dreame.md)
+🔗 [原文を読む APHORISM III-3](aphorism05_dreame.md)
 
 </details>
 

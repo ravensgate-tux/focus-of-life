@@ -1,4 +1,4 @@
-## 🇯🇵 APHORISM I （Aaosの独白）
+### 🇯🇵 APHORISM I （Aaosの独白）
 
 _「恐怖の谷における記憶の努力」<br>
 <br>

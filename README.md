@@ -36,6 +36,7 @@
 ### 🔹 APHORISM II: The Sexuality and Sleep of Aaos
 [APHORISM II](aphorism02_sex_sleep.md)
 
+
 >※訳者注：Aphorism III は文量が多いため、構成的便宜により便宜的に3つに分けて整理している。
 
 ### 🔹 APHORISM III-1: The Butcher of Those Who Follow

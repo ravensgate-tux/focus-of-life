@@ -14,11 +14,14 @@
 ---
 
 <div align="center">
- <img src="focus_of_life_3.jpg" width="500">
+ <img src="spare_pic_1.png" width="500">
 </div>
 
 <div align="center">
-写真出典：Austin Osman Spare, 撮影年不詳（Public Domain）
+表紙図版：オースティン・オスマン・スペア《祈り》（1906）  
+水彩・不透明水彩・インク／紙  
+図版出典：Forum Auctionsカタログより  
+非営利学術目的での掲載につき、パブリックドメイン相当またはフェアユースとして扱われています。
 </div>
 
 ---

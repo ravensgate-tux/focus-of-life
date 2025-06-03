@@ -31,22 +31,22 @@
 ---
 
 ### 🔹 APHORISM I: The Mutterings of Aaos（Aaosの独白）
-[APHORISM I](aphorism01_aaos.md)
+👉[APHORISM I](aphorism01_aaos.md)
 
 ### 🔹 APHORISM II: The Sexuality and Sleep of Aaos（Aaosの性と眠り）
-[APHORISM II](aphorism02_sex_sleep.md)
+👉[APHORISM II](aphorism02_sex_sleep.md)
 
 
 >※訳者注：Aphorism III は文量が多いため、構成的便宜により便宜的に3つに分けて整理している。
 
 ### 🔹 APHORISM III-1: The Butcher of Those Who Follow（従うものの屠殺者）
-[APHORISM III-1](aphorism03_butcher.md)
+👉[APHORISM III-1](aphorism03_butcher.md)
 
 ### 🔹 APHORISM III-2: The Dead Body of Aaos（Aaosの死体）
-[APHORISM III-2](aphorism04_deadbody.md)
+👉[APHORISM III-2](aphorism04_deadbody.md)
 
 ### 🔹 APHORISM III-3: The Dream That Came True（夢の成就）
-[APHORISM III-3](aphorism05_dream.md)
+👉[APHORISM III-3](aphorism05_dream.md)
 
 ---
 ### 🗝️ 『The Focus of Life』用語集（Austin Osman Spare）

@@ -1,5 +1,4 @@
-## 🇯🇵 APHORISM II
-
+## 🇯🇵 APHORISM II （Aaosの性と眠り）
 「ZOSの秘儀に戒律のない影の道徳」<br>
 ZOSが IKKAHについて語る<br>
 すべての虚しい夢を捨て、この世界を不誠実な不信として考えよ<br>

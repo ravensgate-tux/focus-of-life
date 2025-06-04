@@ -33,6 +33,8 @@
 ### 🔹 APHORISM I: The Mutterings of Aaos（Aaosの独白）
 👉[APHORISM I](aphorism01_aaos.md)
 
+>※訳者注：タイトルはAaosではあるが、冒頭にあるように「文」としてはKiaがZosに語っている
+
 ### 🔹 APHORISM II: The Sexuality and Sleep of Aaos（Aaosの性と眠り）
 👉[APHORISM II](aphorism02_sex_sleep.md)
 

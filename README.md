@@ -1,4 +1,5 @@
-## 『生命の焦点（The Focus of Life）』　- Austin Osman Spare 翻訳＋注釈Zine（最終レビュー中）
+## 『生命の焦点（The Focus of Life）』　- Austin Osman Spare 翻訳＋注釈Zine
+<br>　🚧（最終レビュー中）🚧
 
 このZineは、オースティン・オスマン・スペアの『The Focus of Life（生命の焦点）』の全文を、翻訳して注釈をつけたものです。
 

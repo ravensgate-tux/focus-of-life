@@ -30,10 +30,12 @@
 ### 🔹 APHORISM I: The Mutterings of Aaos（Aaosの独白）
 👉[APHORISM I](aphorism01_aaos.md)
 
->※訳者注：タイトルはAaosの独白ではあるが、冒頭にあるように「文」としてはKia（ただし身代わり人形のKia）がZosに語っている
+>※訳者注：タイトルは（Aaosの独白）ではあるが、冒頭にあるように「文」としてはKia（ただし身代わり人形のKia）がZosに語っている
 
 ### 🔹 APHORISM II: The Sexuality and Sleep of Aaos（Aaosの性と眠り）
 👉[APHORISM II](aphorism02_sex_sleep.md)
+
+>※訳者注：タイトルは（Aaosの性と眠り）ではあるが、冒頭にあるように「文」としてはZosがIkkahに語っている
 
 ### 🔹 APHORISM III-1: The Butcher of Those Who Follow（従うものの屠殺者）
 👉[APHORISM III-1](aphorism03_butcher.md)

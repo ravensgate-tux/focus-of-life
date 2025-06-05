@@ -14,14 +14,11 @@
 ---
 
 <div align="center">
- <img src="spare_pic_1.png" width="300">
+ <img src="spare2.jpg" width="300">
 </div>
 
 <div align="center">
-表紙図版：オースティン・オスマン・スペア《祈り》（1906）<br>
-水彩・不透明水彩・インク／紙  <br>
-図版出典：Forum Auctionsカタログより <br>  
-非営利学術目的での掲載につき、パブリックドメイン相当またはフェアユースとして扱われている <br>
+表紙画像：Austin Osman Spareによる自画像（出典不詳）。本画像は非営利目的の解釈・批評を目的とし、著作権上のフェアユースまたは日本国著作権法第32条に基づいて使用しています。
 </div>
 
 ---

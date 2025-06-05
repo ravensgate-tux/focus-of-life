@@ -1,4 +1,4 @@
-## 🇯🇵 APHORISM III-2
+## 🇯🇵 APHORISM III-2　（Aaosの死体）　
 
 AAOSの死体<br>
 死を待つAAOSは独白でこう言った<br>

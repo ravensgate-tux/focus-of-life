@@ -14,7 +14,7 @@
 ---
 
 <div align="center">
- <img src="spare2.jpg" width="300">
+ <img src="spare3.png" width="300">
 </div>
 
 <div align="center">
